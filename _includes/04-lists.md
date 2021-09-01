@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+i love to do and my favorite things
+* 🧑‍🎓
+* 🍪
+* 🏏
+* 🍞
+* 💻
+these are things which i likes.
